@@ -1,1 +1,3 @@
-# Hello-world
+ssup bich
+its me on github
+kiss your goodbyes to programming because it's about time we did some real dirty work...
